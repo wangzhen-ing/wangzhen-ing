@@ -1,6 +1,6 @@
 ### Hi there 👋
 🤓 I'm Wang Zhen, a master's student at Xi'an Jiaotong University.
-My current research direction is image translation
+My current research direction is image translation.
 I like sports, like basketball🏀, fitness💪, running🏃, swimming🏊, outdoor🧗‍♂️, etc.
  🍎 🍓 🥭 🥝
 
